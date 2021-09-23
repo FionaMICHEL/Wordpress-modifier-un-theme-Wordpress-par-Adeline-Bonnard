@@ -1,1 +1,1 @@
-# Wordpress-modifier-un-th-me-Wordpress-par-Adeline-Bonnard
+# Wordpress, modifier un thème Wordpress par Adeline Bonnard
